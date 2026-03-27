@@ -97,7 +97,6 @@ Jhanvi Gupta
 
 
 
-🔗 GitHub: https://github.com/JhanviGupta03
 
 🔗 LinkedIn: linkedin.com/in/jhanvi-gupta-73392b398
 
